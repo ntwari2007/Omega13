@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @ntwari2007
+- 👋 Hi, I’m @Omega13
 - 👀 I’m interested in informatic
 - 🌱 I’m currently learning programmation
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on projet
 - 📫 How to reach me ...
 +258875882991 
 <!---
